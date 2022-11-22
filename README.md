@@ -1,0 +1,9 @@
+ clasa IX-F
+# clasa-IX-F
+# clasa-IX-F
+# clasa-IX-F
+# clasa-IX-F
+# clasa-a-IX-a-F
+# clasa-a-IX-a-F
+# clasa-a-IX-a-F
+# clasa-a-IX-a-F
