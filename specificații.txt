@@ -1,0 +1,3 @@
+Acesta este branch-ul developement din proiectul Tema 3 - Operatie de rebase ce conține
+*specificații.txt
+*calificări.docx
